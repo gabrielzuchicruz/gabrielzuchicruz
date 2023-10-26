@@ -1,3 +1,3 @@
 ### boas vinda as meu perfil
 
-meu nome é gabrielGoogle 💙
+meu nome é gabriel 💙
